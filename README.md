@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **hamzashaikh74@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://www.linkedin.com/in/hamzashaikh47/overlay/1635482366638/single-media-viewer?type=DOCUMENT&profileId=ACoAACMB1S8BdNHtXjSWvkKACmEEwNhPSQxzXBQ&lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base%3BgRjDveGjSyaQ9lyCkEqBfg%3D%3D)
+- 📄 Know about my experiences [Resume](bit.ly/3qXxySG)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
